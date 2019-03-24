@@ -1,0 +1,1 @@
+Psychedelics are a class of drugs that cause changes to the perception of your senses. They have been attributed to the rise of the counter-culture movement in the United States, and are the basis of government mind-control conspiracy theories.
